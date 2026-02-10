@@ -11,4 +11,5 @@
 - [Massenmigration anschaulich erklärt](https://x.com/robbystarbuck/status/1996620424617308221)
 - [Idiotie verständlich aufgeklärt](https://x.com/dejanirasilveir/status/1983250726248759606)
 - [Lichtenstein - Ein Paradies?](https://x.com/itsme_urstruly/status/1973367843803766953)
-- 
+- [Die einzigen vier Grundfunktionen, die der Staat zu erfüllen hat](https://x.com/TheRabbitHole/status/1930646504961966104)
+- [Das haben die Mainstream-Medien wohl nicht verbreitet](https://x.com/medienfuzzishow/status/1951238914011722230)
