@@ -8,4 +8,7 @@
 - [Lina Seiche über die Politik von Nayib Bukele](https://x.com/linaseiche/status/2019557686291927420)
 - [Bill Maher über die Rolle eines traditionellen Vaters](https://x.com/joeroganhq/status/2019523929413677352)
 - [Nayib Bubele spricht über Menschenrechte](https://x.com/nayibbukele/status/2017419063840932221)
+- [Massenmigration anschaulich erklärt](https://x.com/robbystarbuck/status/1996620424617308221)
+- [Idiotie verständlich aufgeklärt](https://x.com/dejanirasilveir/status/1983250726248759606)
+- [Lichtenstein - Ein Paradies?](https://x.com/itsme_urstruly/status/1973367843803766953)
 - 
