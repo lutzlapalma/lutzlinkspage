@@ -17,3 +17,4 @@
 - [Elon Musk über Meinungsfreiheit](https://www.youtube.com/shorts/YlD0rRMV7ME)
 - [Die Kälte kommt - die Ernten schwinden](https://www.youtube.com/watch?v=EIDAuTMk91E)
 - [Uruguay: Ein Präsident wie keiner](https://youtu.be/hteGnL-8SeU)
+- [Regierungserklärung von Javier Milei](https://x.com/libertarianduty/status/1737848996738273615)
