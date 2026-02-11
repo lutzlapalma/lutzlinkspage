@@ -13,3 +13,7 @@
 - [Lichtenstein - Ein Paradies?](https://x.com/itsme_urstruly/status/1973367843803766953)
 - [Die einzigen vier Grundfunktionen, die der Staat zu erfüllen hat](https://x.com/TheRabbitHole/status/1930646504961966104)
 - [Das haben die Mainstream-Medien wohl nicht verbreitet](https://x.com/medienfuzzishow/status/1951238914011722230)
+- [Ein Vorhersage vom VAE-Außenminister in 2017](https://www.youtube.com/shorts/0jOYl_AxvFk)
+- [Elon Musk über Meinungsfreiheit](https://www.youtube.com/shorts/YlD0rRMV7ME)
+- [Die Kälte kommt - die Ernten schwinden](https://www.youtube.com/watch?v=EIDAuTMk91E)
+- [Uruguay: Ein Präsident wie keiner](https://youtu.be/hteGnL-8SeU)
