@@ -18,3 +18,7 @@
 - [Die Kälte kommt - die Ernten schwinden](https://www.youtube.com/watch?v=EIDAuTMk91E)
 - [Uruguay: Ein Präsident wie keiner](https://youtu.be/hteGnL-8SeU)
 - [Regierungserklärung von Javier Milei](https://x.com/libertarianduty/status/1737848996738273615)
+- [Das dumme Volk muss beschäftigt werden](https://x.com/lionleonidas3/status/2021273192631881732)
+- [Vier Wege um Geld auszugeben](https://x.com/saylordocs/status/2021492147875393646)
+- [Gegen den Hunger auf der Welt](https://x.com/rickydoggin/status/1958959986337620070)
+- 
