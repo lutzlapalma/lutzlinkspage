@@ -21,4 +21,5 @@
 - [Das dumme Volk muss beschäftigt werden](https://x.com/lionleonidas3/status/2021273192631881732)
 - [Vier Wege um Geld auszugeben](https://x.com/saylordocs/status/2021492147875393646)
 - [Gegen den Hunger auf der Welt](https://x.com/rickydoggin/status/1958959986337620070)
+- [The difference between a Constitutional Republic and a Democracy](https://x.com/thematrixb0t/status/2021340141839847644?s=12)
 - 
